@@ -1,8 +1,8 @@
-# BeautyDealsQueen App Privacy Policy
+# Beautyverse App Privacy Policy
 
 
 
-By using the app Beauty Deals Queen you are consenting to our policies regarding the collection, use and disclosure of personal information set out in this privacy policy.
+By using the app Beautyverse you are consenting to our policies regarding the collection, use and disclosure of personal information set out in this privacy policy.
 
 Collection of Personal Information
 
